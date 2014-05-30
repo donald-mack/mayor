@@ -1,0 +1,10 @@
+name: Open Mayor
+description: Using open-source to make city hall work for everyone.
+meta_description: "Using open-source to make city hall work for everyone."
+
+markdown: redcarpet
+pygments: true
+relative_permalinks: false
+
+url:            'blog url'
+author:         'Your Name'

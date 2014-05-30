@@ -1,3 +1,8 @@
+---
+permalink: /
+layout: page
+---
+
 mayor
 =====
 
