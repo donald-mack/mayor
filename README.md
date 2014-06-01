@@ -57,16 +57,18 @@ values and universal health care was born.
 With the onset of median Canada began to become more aquainted with American
 culture. Through this process Canadians have become inundated with the idea that
 certain groups may be out to get each other. In the ninties The Bloc Québécois
-came into power in an effort to separete from Canada and the Western Reform Party
-with much of the same intent. The referendum of Quebec only made Canada stronger
-and was obvioulsly not a good solution.
+came into power in an effort to separate from Canada. The Western Reform Party
+proppped up a few years later with much of the same intent. In the end the
+referendum of Quebec only made Canada stronger.
 
 Steven Harper is a brilliant politcal mind and managed to learn from all of
 this. If Canada could have a Conservative Party that mirrored that of the
 American GOP it could ride on any rhetoric that suited it. American media
-is designed to sell ideas and points of view to people. This process is
-destroying Canadian values and we have become irrational in our opposition
-to each other.
+is designed to sell ideas and points of view to people. Ten years ago
+the Candian Alliance was created in a merger of the Reform and Progressive
+Conservatives. Ever since then it has been a war between liberal and
+conservative ideals. This process is destroying Canadian values and we have
+become irrational in our opposition to each other.
 
 # Amalgamation destroyed the spirit of Toronto
 
