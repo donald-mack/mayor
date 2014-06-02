@@ -54,14 +54,14 @@ time went on the Tories weakened and the Liberals became entrenched in cronyism.
 The New Democrats were kicked off to ensure that society kept up with modern
 values and universal health care was born.
 
-With the onset of median Canada began to become more aquainted with American
+As American media has boomed Canada began to become more aquainted with American
 culture. Through this process Canadians have become inundated with the idea that
 certain groups may be out to get each other. In the ninties The Bloc Québécois
 came into power in an effort to separate from Canada. The Western Reform Party
 proppped up a few years later with much of the same intent. In the end the
 referendum of Quebec only made Canada stronger.
 
-Steven Harper is a brilliant politcal mind and managed to learn from all of
+Stephen Harper is a brilliant politcal mind and managed to learn from all of
 this. If Canada could have a Conservative Party that mirrored that of the
 American GOP it could ride on any rhetoric that suited it. American media
 is designed to sell ideas and points of view to people. Ten years ago
@@ -89,7 +89,7 @@ and no real action.
 Rob Ford is a personality and a real voice of the people, he could have been a
 very good mayor of Etobikoke. All a mayor needs to be is likeable and represent
 something that everyone can relate to. The reality is that the urban core of
-Toronto has a lot of elitsm and apathy. It is just how big cities are, people
+Toronto has a lot of elitism and apathy. It is just how big cities are, people
 tend to have a mission beyond the home. Suburban folks have a strong sense of
 community and value their personal property. The difference in these points of
 view will always clash when stacked against each other. It becomes us vs them.
@@ -126,7 +126,7 @@ today, not tomorrow.
 
 # Youth will shape the future
 
-Politicians obsess over jobs and retirement like it were man kinds eternal
+Politicians obsess over jobs and retirement like it were man kind's eternal
 battle. The reality is that no one is retiring and no industry other than
 technology is generating substantial growth. Very few of those controlling the
 money have even the slightest clue as to how technology is shaping itself. It
