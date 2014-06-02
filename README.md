@@ -160,4 +160,5 @@ way of life.
 
 This opportunity can be seized. Toronto can redefine politics.
 
-[The plan is being shaped here, anyone can join in.](http://openmayor.ca/the-plan)
+The plan is shaping [here](http://openmayor.ca/the-plan), and anyone can
+contribute [here](https://github.com/freesurface/mayor).
