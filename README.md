@@ -160,4 +160,4 @@ way of life.
 
 This opportunity can be seized. Toronto can redefine politics.
 
-[The plan is being shaped here, anyone can join in.](http://openops.ca/the-plan)
+[The plan is being shaped here, anyone can join in.](http://openmayor.ca/the-plan)
