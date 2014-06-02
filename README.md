@@ -135,3 +135,22 @@ is a dead end game if we carry on this way.
 We must allow youth to turn their infinite potential away from video games and
 social media to focus on designing the future. There is no other rational alternative
 if all options are considered pragmatically.
+
+# Government can be open-source
+
+If we keep putting each other in places of power we will never get what we
+need. In today's age voting is still not available online and we elect people
+who tailor their platform to a generation on the way out. No one wants to fix
+this because there is no benefit to those in control now.
+
+If we can figure out how to get the things that we need to rise to the top we
+can start to make a difference. This will never happen if we elect any one
+person to represent us in today's age.
+
+# It starts with the Mayor
+
+Rob Ford proves that Toronto runs fine without a Mayor and that there is no real
+danger in experimenting with the role. His personality has been exploited by the
+media and in the wake Toronto has been put on an internationl stage.
+
+This opportunity can be seized. Toronto can redefine politics.
