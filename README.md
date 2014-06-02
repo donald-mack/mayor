@@ -158,7 +158,6 @@ of Toronto. It is a great strategy to win, but Toronto needs to see past it.
 We must remember that the media makes it's money by covering every detail of his
 way of life.
 
-This opportunity can be seized. Toronto can redefine politics.
-
-The plan is shaping [here](http://openmayor.ca/the-plan), and anyone can
-contribute [here](https://github.com/freesurface/mayor).
+This opportunity can be seized. Toronto can redefine politics. The plan is
+shaping [here](http://openmayor.ca/the-plan), and anyone can contribute
+[here](https://github.com/freesurface/mayor).
