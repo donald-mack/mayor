@@ -127,10 +127,10 @@ today, not tomorrow.
 # Youth will shape the future
 
 Politicians obsess over jobs and retirement like it were man kinds eternal
-battle. The reality is that no on is retireing and no industry other than
-technology is generating growth. Very few of those controlling the money have
-even the slightest clue as to how technology is shaping itself. It is a dead end
-game if we carry on this way.
+battle. The reality is that no one is retiring and no industry other than
+technology is generating substantial growth. Very few of those controlling the
+money have even the slightest clue as to how technology is shaping itself. It
+is a dead end game if we carry on this way.
 
 We must allow youth to turn their infinite potential away from video games and
 social media to focus on designing the future. There is no other rational alternative
