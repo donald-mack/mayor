@@ -84,7 +84,7 @@ Today Toronto has become a polarized voting base and it is open season for
 federal politicians to interfere. In the end Torontonians are left with rhetoric
 and no real action.
 
-# Rob Ford is not a Conservative
+# Rob Ford is not a politician
 
 Rob Ford is a personality and a real voice of the people, he could have been a
 very good mayor of Etobikoke. All a mayor needs to be is likeable and represent
