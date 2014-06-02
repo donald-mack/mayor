@@ -99,6 +99,27 @@ suburban values. These are not Conservative values, and by now the federal
 Conservative party likely wishes they had not created this association. Rob
 Ford grew up in the city burbs, and drugs are just a part of that culture. It
 is not evil, it is just reality. The suburban voters of Toronto understand this
-and will always back him. Even though they are the suburbs,it is still city
+and will always back him. Even though they are the suburbs, it is still city
 life. It tends to be a little rough, but the people are good and passionate.
 
+# Politics is plauged with elitism
+
+Most politicians have excelled their way through superior school systems and
+executed their careers in the same fashion. While they are always extremely
+capable people and have the best intentions, they will always feel that they
+know best. This can be especially dangerous when they polarize their viewpoint.
+If you spend your life thinking that others are dead wrong, you start to ignore
+the bigger picture.
+
+# Baby boomers need to retire
+
+The reality is that Canadian politicians can no longer help us prepare for the
+future. An entire generation of people are at retirement age in this country
+with no plans of retiring. This goes for politicians, executives, union leaders
+and anyone else that has a stake in our future. We need a plan to fix this.
+
+The state of technology in government hands is atrocious. Simply, this is a
+generational problem. Baby boomers fear technology and generally get ripped
+off when buying it. We need people who see the potential of how technology will
+impact our future and the future of our children. Technology can be free
+today, not tomorrow.
