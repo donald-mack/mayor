@@ -151,10 +151,11 @@ person to represent us in today's age.
 
 Rob Ford proves that Toronto runs fine without a Mayor and that there is no real
 danger in experimenting with the role. His personality has been exploited by the
-media and in the wake Toronto has been put on an internationl stage. He is good
-man but has likely become corrupted by celebrity. Rob Ford is now seeking media
-attention where ever he can muster it and this is not helpful for the future
+media and in the wake Toronto has been put on an internationl stage. He is a
+good man but is likely becoming corrupted by celebrity. Rob Ford is now seeking
+media attention where ever he can find it and this is not helpful for the future
 of Toronto. It is a great strategy to win, but Toronto needs to see past it.
-We must remember that the media makes money off of Rob Ford and his way of life.
+We must remember that the media makes it's money by covering every detail of his
+way of life.
 
 This opportunity can be seized. Toronto can redefine politics.
