@@ -48,9 +48,9 @@ day. There is no value in letting politics slow that process down.
 
 For the first 70 years of Canada the Liberal party helped shape our identity.
 The center-left party was Canada's first and the point of view was a truly
-Canadian one. As Western Canada developed so did its point of view and the
-center-right Progressive Conservatives were started to better represent. As
-time went on the Tories weakened and the Liberals became entrenched in cronyism.
+Canadian one. As Western Canada developed so did their points of view and so
+the center-right Progressive Conservatives were started to better represent them.
+As time went on the Tories weakened and the Liberals became entrenched in cronyism.
 The New Democrats were kicked off to ensure that society kept up with modern
 values and universal health care was born.
 
