@@ -6,7 +6,7 @@ layout: page
 # Canada can't become America
 
 Canada has always needed to be a cautious neighbour of America. We have watched
-it go through revolutions of epic proportions and build itself up on the back of
+them go through revolutions of epic proportions and build itself up on the back of
 slavery. It has created and spearheaded the most important innovations in the
 history of humanity. It is the driving force behind the modern world. It created
 freedom. America has always been about doing good, but there is a raw force to
