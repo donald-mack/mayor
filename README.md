@@ -63,7 +63,7 @@ referendum of Quebec only made Canada stronger.
 
 Stephen Harper is a brilliant politcal mind and managed to learn from all of
 this. If Canada could have a Conservative Party that mirrored that of the
-American GOP it could ride on any rhetoric that suited it. American media
+American Republican party it could ride on any rhetoric that suited it. American media
 is designed to sell ideas and points of view to people. Ten years ago
 the Canadian Alliance was created in a merger of the Reform and Progressive
 Conservatives. Ever since then it has been a war between liberal and
