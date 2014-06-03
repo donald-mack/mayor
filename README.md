@@ -18,7 +18,7 @@ We are stoic people who understand the meaning of common good. This
 understanding has been quintessential in the preservation of our society and
 the basis of our values. We can not forget the true reason that so many of us
 have died for this nation. We have no ego, because having one would put us in
-danger of loosing what we have worked so hard to create.
+danger of losing what we have worked so hard to create.
 
 The political system in America is designed to let freedom reign, and is
 naturally polarizing. It encourages an us versus them view of the world. The
@@ -38,10 +38,10 @@ out in its raw and pure vision. If you are the world super power, you get to
 opperate this way. In America powerful people desire to be mayors and political
 allegiance is paramount.
 
-In Canada the mayor is one vote that is mean as a symbol of the common voice.
+In Canada the mayor is one vote that is meant as a symbol of the common voice.
 Our mayors are meant to have no political allegiance. Their role is to persaude
 counsil to think about the common voice before that of their own wards. City
-hall is resonsible for the aspects of our lives that effect us each and every
+hall is responsible for the aspects of our lives that effect us each and every
 day. There is no value in letting politics slow that process down.
 
 # The Conservative movement is hurting Canada
@@ -54,7 +54,7 @@ As time went on the Tories weakened and the Liberals became entrenched in cronyi
 The New Democrats were kicked off to ensure that society kept up with modern
 values and universal health care was born.
 
-As American media has boomed Canada began to become more aquainted with American
+As American media boomed Canada began to become more acquainted with American
 culture. Through this process Canadians have become inundated with the idea that
 certain groups may be out to get each other. In the ninties The Bloc Québécois
 came into power in an effort to separate from Canada. The Western Reform Party
@@ -65,14 +65,14 @@ Stephen Harper is a brilliant politcal mind and managed to learn from all of
 this. If Canada could have a Conservative Party that mirrored that of the
 American GOP it could ride on any rhetoric that suited it. American media
 is designed to sell ideas and points of view to people. Ten years ago
-the Candian Alliance was created in a merger of the Reform and Progressive
+the Canadian Alliance was created in a merger of the Reform and Progressive
 Conservatives. Ever since then it has been a war between liberal and
 conservative ideals. This process is destroying Canadian values and we have
 become irrational in our opposition to each other.
 
 # Amalgamation destroyed the spirit of Toronto
 
-Once upon a time people of Etobikoke told the GTA that they were from Etobikoke
+Once upon a time the people of Etobikoke told the GTA that they were from Etobikoke
 and the rest of world that they were from Toronto. Guess what, they still do.
 No one in Toronto wanted amalgamation. The conservative party had the authority
 to hand the raw deal and they took no prisoners in getting it carried out. They
@@ -89,16 +89,17 @@ and no real action.
 Rob Ford is a personality and a real voice of the people, he could have been a
 very good mayor of Etobikoke. All a mayor needs to be is likeable and represent
 something that everyone can relate to. The reality is that the urban core of
-Toronto has a lot of elitism and apathy. It is just how big cities are, people
-tend to have a mission beyond the home. Suburban folks have a strong sense of
-community and value their personal property. The difference in these points of
-view will always clash when stacked against each other. It becomes us vs them.
+Toronto has a lot of elitism and apathy because that is just how big cities are.
+City folk tend to have a mission beyond their home whereas suburban folks have a
+strong sense of community and value their personal property. The difference in
+these points of view will always clash when stacked against each other. It becomes
+us vs them.
 
 Rob Ford will always drive out more voters because he has become a symbol of
 suburban values. These are not Conservative values, and by now the federal
 Conservative party likely wishes they had not created this association. Rob
 Ford grew up in the city burbs, and drugs are just a part of that culture. It
-is not evil, it is just reality. The suburban voters of Toronto understand this
+is not evil, just reality. The suburban voters of Toronto understand this
 and will always back him. Even though they are the suburbs, it is still city
 life. It tends to be a little rough, but the people are good and passionate.
 
@@ -126,15 +127,15 @@ today, not tomorrow.
 
 # Youth will shape the future
 
-Politicians obsess over jobs and retirement like it were man kind's eternal
+Politicians obsess over jobs and retirement like it were mankind's eternal
 battle. The reality is that no one is retiring and no industry other than
 technology is generating substantial growth. Very few of those controlling the
 money have even the slightest clue as to how technology is shaping itself. It
 is a dead end game if we carry on this way.
 
 We must allow youth to turn their infinite potential away from video games and
-social media to focus on designing the future. There is no other rational alternative
-if all options are considered pragmatically.
+social media to focus on designing the future. There is no other rational
+alternative if all options are considered pragmatically.
 
 # Government can be open-source
 
@@ -153,7 +154,7 @@ Rob Ford proves that Toronto runs fine without a Mayor and that there is no real
 danger in experimenting with the role. His personality has been exploited by the
 media and in the wake Toronto has been put on an internationl stage. He is a
 good man but is likely becoming corrupted by celebrity. Rob Ford is now seeking
-media attention where ever he can find it and this is not helpful for the future
+media attention wherever he can find it and this is not helpful for the future
 of Toronto. It is a great strategy to win, but Toronto needs to see past it.
 We must remember that the media makes it's money by covering every detail of his
 way of life.
